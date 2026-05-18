@@ -1,4 +1,4 @@
-# 
+# exclusive Adobe Photoshop para PC executor é o melhor Adobe Photoshop para PC executor com edição de nós e rastreamento de movimento. Seguro, confiável e otimizado para máximo
 
 
 
